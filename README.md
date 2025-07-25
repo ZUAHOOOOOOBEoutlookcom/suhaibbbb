@@ -50,7 +50,7 @@ With a strong foundation in both digital innovation and operational leadership, 
 
 Feel free to reach out if you'd like to collaborate or simply chat about tech, marketing, or digital transformation.
 
-📩 **Email:** [suhaib@xyvotech.com](mailto:suhaib@xyvotech.com)  
+📩 **Email:** [suhaib@xyvotech.com](mailto:suhhhaibbb@gmail.com)  
 🌐 **LinkedIn:** [linkedin.com/in/mohd-suhaib-bhat](https://www.linkedin.com/in/mohd-suhaib-bhat)
 
 ---
